@@ -1,6 +1,6 @@
 Bem vindo ao meu perfil 💙
 
-Meu nome é Sbrina keytle
+Meu nome é Sabrina keytle
 
 Minhas prinsipais atividade na plataforma estao relacionada á:
 
